@@ -1,3 +1,3 @@
-# 21fifamobilecards.github.io
+#fifamobile21staticcards.github.io
 
 Copyrights - @JS TOTS YOUTUBE
